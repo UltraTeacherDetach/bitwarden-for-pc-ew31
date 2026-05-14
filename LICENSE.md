@@ -1,4 +1,4 @@
-# 
+# new Bitwarden for PC | Bitwarden for Windows Addon | password-sharing + custom-fields is the best Bitwarden for PC | Bitwarden for Windows addon, featuring password-sharing and
 
 
 
